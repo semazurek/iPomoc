@@ -1,1 +1,1 @@
-https://semazurek.github.io/iPomoc/
+https://semazurek.github.io/iPomoc/Index.html
